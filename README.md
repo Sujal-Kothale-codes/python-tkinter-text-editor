@@ -85,7 +85,7 @@ Through this project, I practised:
 
 Sujal Kothale
 
-GitHub: [YOUR-USERNAME](https://github.com/YOUR-USERNAME)
+GitHub: Sujal Kothale ([https://github.com/YOUR-USERNAME](https://github.com/Sujal-Kothale-codes))
 
 ---
 
